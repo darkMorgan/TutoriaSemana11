@@ -1,5 +1,7 @@
 # 💌 Carta desde la compasión + Reencuadre del error
 
+![La importancia de la compasión](https://stjohns.mx/wp-content/uploads/2022/02/la-importancia-de-la-compasion.png)
+
 ## Parte 1: Carta desde la compasión
 
 > “Deja de autosabotearte porque mereces intentarlo sin miedo...”
